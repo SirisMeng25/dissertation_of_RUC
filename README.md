@@ -3,4 +3,4 @@ All work uploaded is concerning the implementation of code of personal undergrad
 
 Any reader who is interesed or would like to ensure the authenticity of my work can download and check the original data and related codes herself. 
 
-My contact email would be sirismeng@gmail.com; please feel free to ask questions.
+My contact email is sirismeng@gmail.com; please feel free to ask questions and you would receive replies as soon as i check the mailbox.
